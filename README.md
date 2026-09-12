@@ -1,1 +1,1 @@
-izin puhh pemula lagi fokus belajar
+izin puhh pemula lagi fokus belajar hehe
